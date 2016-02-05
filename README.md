@@ -4,4 +4,4 @@
  -=Free DDoS software=-
  -=100% Legit NOT a scam=-
  -=Valve anti-anti-cheat software=-
- -=wall, aim, and scripts=-
+ -=Hax and scripts=-
